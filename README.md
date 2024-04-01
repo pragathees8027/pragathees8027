@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Pragatheeswaran
+- 👀 I’m currently studying MCA in CEG, Guindy
+- 🌱 This account is created for the MCA course
+- 📫 Reach me at 2023178027@student.annauniv.in
